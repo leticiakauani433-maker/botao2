@@ -2,7 +2,7 @@
 
 ## 👩‍💻 Autora
 
-**Mirela Marques de Faria**
+**Leticia Cardoso**
 
 ## 📌 Sobre o projeto
 
